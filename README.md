@@ -1,2 +1,3 @@
 # hello-world
-Human of Astronomy and Astrophysics at UofT. Loosing sanity and finding x's. Dumbass degree holder in all-nighters,acing tests and having a no-life.
+Human of Physics and Astrophysics at the University of Toronto. Aspiring to get a graduate degree at Harvard University. Slowly and steadily, we will get this. Yours boundless. Fondzenyuy TonyLouis Verberi.
+
